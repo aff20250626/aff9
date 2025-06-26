@@ -61,4 +61,4 @@ Telegram频道传送门：严选高质量Telegram频道，涵盖娱乐、资讯�
 社会影响：
 
 不仅为吃瓜用户提供事件回顾与讨论依据，也为大众理解娱乐行业生态和网络舆情走势提供有力参考，是观察社交风向与大众情绪的重要窗口。
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/aff20250626/aff9）</span>
